@@ -1,3 +1,3 @@
 # TheProphet1
 
-Private please do not a Youtube, reproduce or share this repo as this is for personal use.
+This is Private repo. Please do not do a Youtube review, reproduce or share this repo as this is for personal use.
